@@ -1,0 +1,8 @@
+1. Motif telinga
+
+: titik Mata putih membentuk Telinga Kanan Dan Kiri Berbeda
+: titik mata putih samping . memiliki bagian luar telinga sedikit
+: titik mata putih bawah . memiliki bagian dalam telinga sedikit tajam
+: titik mata putih atas . memiliki bagian anting yang beremas bulat
+ terkecil
+(Besar Kecil) berdasarkan 
